@@ -1,2 +1,0 @@
-# MONSTERGAMER
-pagina de juegos 
